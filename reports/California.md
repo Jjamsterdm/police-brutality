@@ -202,7 +202,9 @@ A crowd of protestors chanting are shot with rubber bullets by a line of officer
 
 ### Police shoot unarmed man in a wheelchair in the face | June 3rd
 
-A man confined to a wheelchair is shot in the eye with a rubber bullet causing hemorrhaging from his eye. The man was unarmed and not protesting. 
+Los Angeles police officers fired rubber bullets as dozens entered an apartment building seeking refuge with the help of one of the residents it appeared who opened the door.
+
+One of the hard rubber bullet rounds struck a homeless man in a wheelchair right above his left eye, drawing blood and a large welt.
 
 **Links**
 
@@ -210,6 +212,7 @@ A man confined to a wheelchair is shot in the eye with a rubber bullet causing h
 * https://www.dailynews.com/2020/06/03/dozens-arrested-in-downtown-los-angeles-tuesday-night-after-day-of-peaceful-protests/
 * https://www.instagram.com/p/CBCiZXOlno4/
 * https://twitter.com/Terminal_Redux/status/1268870944615026690
+* https://www.dailynews.com/2020/06/03/dozens-arrested-in-downtown-los-angeles-tuesday-night-after-day-of-peaceful-protests/amp/
 
 
 ## Oakland
